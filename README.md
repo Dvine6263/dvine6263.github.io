@@ -1,1 +1,0 @@
-# jayesh-vex.github.io
